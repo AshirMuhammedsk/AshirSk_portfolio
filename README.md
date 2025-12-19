@@ -1,1 +1,3 @@
-# AshirSk_portfolio
+# Ashir Muhammed Sk
+## Thalassery
+### Data Analyst
